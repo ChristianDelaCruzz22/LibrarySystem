@@ -1,0 +1,9 @@
+Library System
+
+https://christiandelacruzz22.github.io/LibrarySystem/
+
+Optional:
+Insti: jcesperanza@neu.edu.ph
+Password: 12-33445-678
+
+Can you Google Sign Up, and it is authorized by NEU account Only
